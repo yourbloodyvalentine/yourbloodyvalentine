@@ -28,7 +28,7 @@
     ⸸ my main kinnies: poob, mark heathcliff, jonah marshall, medkit, N, ryker dublin
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸ comfy, c+h, w2i, int. no toxic person, but if you mock me in a bad way, i can stand up for myself. 
+    ⸸ comfy, c+h, w2i, int, CDUF and CTUF please . no toxic person, but if you mock me in a bad way, i can stand up for myself. 
 
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
 
