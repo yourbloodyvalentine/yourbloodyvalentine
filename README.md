@@ -3,9 +3,6 @@
 
 ![stamp_15_by_anxious_page_ddpso61-fullview](https://github.com/user-attachments/assets/be08bae8-94b5-4a08-85b4-794654ef33e5)![stamp_2_by_coyotestamps_dbivprq-fullview](https://github.com/user-attachments/assets/88768b2d-bfd0-4a5a-962b-29f785a46866)![graveyard_stamp_by_homu64_d9zynsi-fullview](https://github.com/user-attachments/assets/445e6364-798b-421c-9dc8-3fd275787fa1)![d156mh8-152b3c1f-9352-4013-9433-83fccdf76280](https://github.com/user-attachments/assets/97008f26-aa18-4a08-9c62-2169b02a7ad0)![47_by_toydotpng_dckeuso-fullview](https://github.com/user-attachments/assets/89dff536-5c3f-4676-a06a-d95fa6b69e57)![008_by_eternul_daobg5h-fullview](https://github.com/user-attachments/assets/8b258d97-aeb8-460d-bc88-ddeda9010c4c)![church_stamp_by_catjamsprinkles_dg0dudj-fullview](https://github.com/user-attachments/assets/ebece7c5-3861-44aa-918c-f2f74aa83bcf)![d9qglq5-43615bdd-dd22-4e28-96ac-4a6bcb9cca91](https://github.com/user-attachments/assets/de4b1aa2-66bc-4e62-98b4-5c05aa6dcbf7)
 
-<img alt="Static Badge" src="https://img.shields.io/badge/build-passing-brightgreen?style=plastic&logo=telegramm&logoColor=violet&logoSize=auto&label=my&labelColor=abcdef&color=fedcba&cacheSeconds=3660&link=https%3A%2F%2Ft.me%2Farchie_arrr&link=https%3A%2F%2Ft.me%2Farchie_arrr">
-
-
 
   ![tumblr_8af38de204995253185a1eb0091d9a7f_964f7960_100](https://github.com/user-attachments/assets/2805dc70-c651-417c-a74b-ad7aff0efc53)
  
