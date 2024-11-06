@@ -10,19 +10,25 @@
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
 
     ⸸ hi! you can call me archie\zhenya. 
-    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+    
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸  i'm 18 year old, i'm drawning 
-    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+    
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸  pronouns ONLY he\him
-    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+    
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸ dni: p\do, racist, sexist, homophobes, darkshippers, proshippers
-    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+    
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸ my main fandoms:  regretevator, mandela catalogue, persona 5, pressure, murder drones, danganronpa, life is strange, 
     phighting, 8:11 and etc. 
     you can find out about others in the course of the dialogue with me
-    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+    
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸ my main kinnies: poob, mark heathcliff, jonah marshall, medkit, N, ryker dublin
-    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+    
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸ comfy, c+h, w2i, int. no toxic person, but if you mock me in a bad way, i can stand up for myself. 
 
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
