@@ -11,7 +11,7 @@
     ⸸ hi! you can call me archie\zhenya. 
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸  i'm 19 year old, i'm drawning 
+    ⸸  i'm 19 year old, minors stay away from me pls ... i'm drawning 
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸  pronouns ONLY he\him
