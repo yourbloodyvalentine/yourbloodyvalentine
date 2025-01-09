@@ -11,7 +11,8 @@
 
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
 
-pppsttt... my drawnings.. click!! ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c)
+pppsttt... my drawnings.. click!! ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><img src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/1c0d9331-b556-4fff-aaab-f1e4d56ec7f5)
+</a>
 
     ⸸ hi! you can call me archie\zhenya. 
     
