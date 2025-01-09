@@ -5,8 +5,13 @@
 
 
   ![tumblr_8af38de204995253185a1eb0091d9a7f_964f7960_100](https://github.com/user-attachments/assets/2805dc70-c651-417c-a74b-ad7aff0efc53)
- 
+  ![tumblr_8e173b68654adabbee6cb358f73807bf_4f63ba07_100](https://github.com/user-attachments/assets/4dcca989-f74b-43cd-945b-a2b5ccaea36d)![tumblr_f07f002e4b78eae17b20472a609b18d6_cca94de6_100](https://github.com/user-attachments/assets/a4a97521-60cc-4da2-b762-e976dc73257e)![tumblr_fc3c2168b3a2b8d3bf7a6da6054f3a27_2902a177_100](https://github.com/user-attachments/assets/5d76a6b4-6bc7-4606-a662-75f66608d3a5) ![tumblr_8af38de204995253185a1eb0091d9a7f_964f7960_100](https://github.com/user-attachments/assets/2805dc70-c651-417c-a74b-ad7aff0efc53)
+
+ㅤ
+
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
+
+pppsttt... my drawnings.. click!! ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c)
 
     ⸸ hi! you can call me archie\zhenya. 
     
@@ -32,8 +37,13 @@
 
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
 
-![tumblr_8af38de204995253185a1eb0091d9a7f_964f7960_100](https://github.com/user-attachments/assets/2805dc70-c651-417c-a74b-ad7aff0efc53)       
+![tumblr_8af38de204995253185a1eb0091d9a7f_964f7960_100](https://github.com/user-attachments/assets/2805dc70-c651-417c-a74b-ad7aff0efc53)
+![tumblr_0c8f2aed81b19ee1b9d0b89d559ee70b_7fb0f388_100](https://github.com/user-attachments/assets/cbb49a41-5c81-4bf8-a3d3-61af6d79c6ed)
+![tumblr_a3e3504798481a053e3bb5b4c4a60ba8_22ddaa84_100](https://github.com/user-attachments/assets/99db4223-efa2-4faa-80b3-860e3dba4082)
+![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100](https://github.com/user-attachments/assets/90d811b1-b90d-4fda-b98f-d3310184a64c)
+![tumblr_8af38de204995253185a1eb0091d9a7f_964f7960_100](https://github.com/user-attachments/assets/2805dc70-c651-417c-a74b-ad7aff0efc53)
 
+ㅤㅤ
 
 ![glowing_red_cross_aesthetic_stamp_by_hematology_dbq2uly-fullview](https://github.com/user-attachments/assets/ff643c02-da13-44f0-9e13-72f7a2c2ad2b)![ftu_by_kink_me_dbjs8ya-fullview](https://github.com/user-attachments/assets/79fe725a-e237-4a9b-a29c-4f1040b0cb20)![statue_stamp_3_by_r0senr0tten_dc4p6xx-fullview](https://github.com/user-attachments/assets/408baabb-796d-4107-bd88-bcd7fe85c06c)![burn_your_local_church_by_mephistofff_d18z5hh-fullview](https://github.com/user-attachments/assets/3a1e530b-5269-4d9b-9259-822b4e5d0451)![rosary_stamp_by_mackwrites_d1troor-fullview](https://github.com/user-attachments/assets/c9c0f76b-6b69-4ed5-9219-069eb02889bc)![dbl9h0a-e2fae143-b6a4-4808-9bc7-f2dad9a65f17](https://github.com/user-attachments/assets/9d9050d5-8e9e-45bc-a516-c122682dbab5)![dbiiw4d-b3102d7c-55cc-44aa-ba51-4593ddb7d441](https://github.com/user-attachments/assets/641eb66f-534b-46e7-bc3a-2d762a4dcfd4)![dcman40-34082058-04d3-442e-bd55-8a8bf26b7b0a](https://github.com/user-attachments/assets/981fa058-2b6a-4abd-8350-cf01da05dc34)
 
