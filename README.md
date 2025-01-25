@@ -9,34 +9,33 @@
   ![tumblr_8e173b68654adabbee6cb358f73807bf_4f63ba07_100](https://github.com/user-attachments/assets/4dcca989-f74b-43cd-945b-a2b5ccaea36d)![tumblr_f07f002e4b78eae17b20472a609b18d6_cca94de6_100](https://github.com/user-attachments/assets/a4a97521-60cc-4da2-b762-e976dc73257e)![tumblr_fc3c2168b3a2b8d3bf7a6da6054f3a27_2902a177_100](https://github.com/user-attachments/assets/5d76a6b4-6bc7-4606-a662-75f66608d3a5) ![tumblr_8af38de204995253185a1eb0091d9a7f_964f7960_100](https://github.com/user-attachments/assets/2805dc70-c651-417c-a74b-ad7aff0efc53)
 
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤpsssttt... my drawings.. click!! ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/1c0d9331-b556-4fff-aaab-f1e4d56ec7f5)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤмои рисунки. зайдите посмотрите, вдруг там что-то важное..... click!! ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/1c0d9331-b556-4fff-aaab-f1e4d56ec7f5)
 </a>
 
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
 
 
 
-    ⸸ hi! you can call me archie\zhenya. 
+    ⸸ пр!! меня зовут арчи, но можете называть меня по моему имени - женя
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸  i'm 19 year old, minors stay away from me pls ... 
+    ⸸  мне 19 лет, особо не ищу знакомств т.к не всегда бываю общительный, но если вы мне понравитесь - буду не против общения
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸  pronouns ONLY he\him
+    ⸸  пронаунсы только он\его, без мисгендеринга пж
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸ dni: p\do, racist, sexist, homophobes, darkshippers, proshippers
+    ⸸ dni: педо, расисты, гомофобы, даркшипперы, прокомшипперы и комшипперы 
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸ my main fandoms:  regretevator, mandela catalogue, persona 5, pressure, murder drones, danganronpa, life is strange, 
-    phighting, 8:11 and etc. 
-    you can find out about others in the course of the dialogue with me
+    ⸸ мейнфандомы: persona 5, murder drones, danganronpa, 8:11, slow damage, identity v and etc.
+    вы можете узнать о других фд в ходе диалога со мной, являюсь мультифандомщиком
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸ my main kinnies: poob, mark heathcliff, jonah marshall, medkit, serial designation N, ryker dublin
+    ⸸ мейнкинны: ryker dublin, towa, nagito komaeda, ren amamiya
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸ comfy, c+h, w2i, int, CDUF and CTUF please . !
+    ⸸ c+h, w2i, int, CDUF and CTUF пж
 
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
 
