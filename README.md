@@ -33,9 +33,6 @@
     вы можете узнать о других фд в ходе диалога со мной, являюсь мультифандомщиком
     
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-    ⸸ мейнкинны: ryker dublin, towa, nagito komaeda, ren amamiya
-    
-    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     ⸸ c+h, w2i, int, CDUF and CTUF пж
 
 ![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)![tumblr_2e8a70936778025f6aa8cb9099960606_c6d64684_400](https://github.com/user-attachments/assets/d4105d73-cb76-40f0-9195-4063a632b281)
