@@ -6,9 +6,12 @@
 
 ![tumblr_50baa1895963b102d669b6423373219a_38e68fc1_75-ezgif com-resize (2)](https://github.com/user-attachments/assets/e711301f-b354-4994-b7a7-e7f34a9e5960) 
 
-ａｒｃｈｉｅ \ １９ ｙ．ｏ \ ａｇｅｎｄｅｒ
+ｓａｍｗｅｌｌ - ｓａｍ - ａｒｃｈｉｅ
 
-ｏｎｌｙ ｈｅ\ｈｉｍ
+１９ ｙ．ｏ 
+
+ｈｅ／ｈｉｍ
+
 
 ![tumblr_d1d43f540c5ed1cf63c9909c93c4924c_e3bc33f0_250](https://github.com/user-attachments/assets/0954898b-a1e0-4f09-8b79-d694c5c20122) ｃｌｉｃｋ ｃｌｉｃｋ ｃｌｉｃｋ！！ ｍｙ ｄｒａｗｉｎｇｓ >_< ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/867f571f-f801-4e1b-a8c5-d40953bca633)
 </a>
