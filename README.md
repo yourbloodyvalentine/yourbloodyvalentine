@@ -1,6 +1,4 @@
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xzqdvvxftuv43dz62zud2cqhe4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&bar_color=000000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-
 ![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/19e96cdf-4fe8-4061-8a71-66e89ca97e28)
 
 
