@@ -1,25 +1,25 @@
 
 ![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/19e96cdf-4fe8-4061-8a71-66e89ca97e28)
 
+###### ｃｌｉｃｋ ｃｌｉｃｋ ｃｌｉｃｋ！！ ｍｙ ｄｒａｗｉｎｇｓ >_< ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/867f571f-f801-4e1b-a8c5-d40953bca633)                                                                        
+</a>                   
+
+ 
+                                                      ｓａｍｗｅｌｌ - ｓａｍ - ａｒｃｈｉｅ   
+                                                      １９ ｙ．ｏ 
+                                                      ｈｅ／ｈｉｍ
+                                                      не против мью
+
+###### ![tumblr_d1d43f540c5ed1cf63c9909c93c4924c_e3bc33f0_250](https://github.com/user-attachments/assets/0954898b-a1e0-4f09-8b79-d694c5c20122)
 
 
+https://github.com/user-attachments/assets/3e7ab93d-b37a-4f25-91b9-e02f9f8e24a9                 
 
-ｓａｍｗｅｌｌ - ｓａｍ - ａｒｃｈｉｅ
+                 seven minutes in heaven i hope in the end that i'm not a virgin !!!!!!!!!!! >:7    
 
-１９ ｙ．ｏ 
-
-ｈｅ／ｈｉｍ
-
-не против мью
-
-![tumblr_d1d43f540c5ed1cf63c9909c93c4924c_e3bc33f0_250](https://github.com/user-attachments/assets/0954898b-a1e0-4f09-8b79-d694c5c20122) ｃｌｉｃｋ ｃｌｉｃｋ ｃｌｉｃｋ！！ ｍｙ ｄｒａｗｉｎｇｓ >_< ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/867f571f-f801-4e1b-a8c5-d40953bca633)
-</a>
-
-![tumblr_62049c78ce1d10c837c90cc69e0002ee_8f031e06_500](https://github.com/user-attachments/assets/12668904-d2c8-412a-8072-8472f74f7679)
+![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/19e96cdf-4fe8-4061-8a71-66e89ca97e28)
 
 ![123123123](https://github.com/user-attachments/assets/c77b4838-21bb-4572-960d-22d560fa3d89)![dfl5al](https://github.com/user-attachments/assets/c0c94c9a-52f6-488f-9074-3763bfede2e9)![long_tall_eyelash_by_molly_stamps_da855iw-fullview](https://github.com/user-attachments/assets/49330f48-f8f7-4d4e-abc0-f83ff2649643)![lsd_stamp_by_sosse123_daotxbj-fullview](https://github.com/user-attachments/assets/8a3a7afb-313b-4b33-8f3a-8e6c7c339ac0)![db34p0n-dd82a2a1-f558-44ef-8881-183979858111](https://github.com/user-attachments/assets/664b4cbe-9660-4d05-88ff-76c3c9c1af3a)![d18kiov-cce78da7-903f-4ee0-8161-0d179cc6bb2f](https://github.com/user-attachments/assets/4f5f37c7-cea8-4ada-98b7-6d4a3a66a615)![d1rbl1s-d1e36c00-a7e3-4251-9b41-6156f5a6fdcb](https://github.com/user-attachments/assets/17dfb1fc-1722-47af-b973-8140e7979187)![123123123](https://github.com/user-attachments/assets/c77b4838-21bb-4572-960d-22d560fa3d89)
-
-
 
 ![ezgif com-animated-gif-maker](https://github.com/user-attachments/assets/19e96cdf-4fe8-4061-8a71-66e89ca97e28)
 
