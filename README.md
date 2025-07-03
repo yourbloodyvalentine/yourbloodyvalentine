@@ -5,12 +5,12 @@
 </a>                   
 
  
-                                                      ｓａｍｗｅｌｌ - ｓａｍ - ａｒｃｈｉｅ   
-                                                      １９ ｙ．ｏ 
-                                                      ｈｅ／ｈｉｍ
-                                                      не против мью
-                                                     do not copy lmao ... w2i 
-
+                                                              samwell \ sam \ archie    
+                                                            19 . y . o  
+                                                         he \ him \ his 
+                                                       не против мью
+                                                 do not copy .ᐟ lmao ... w2i 
+ 
 ###### ![tumblr_d1d43f540c5ed1cf63c9909c93c4924c_e3bc33f0_250](https://github.com/user-attachments/assets/0954898b-a1e0-4f09-8b79-d694c5c20122)
 
 
