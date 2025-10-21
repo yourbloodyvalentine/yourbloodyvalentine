@@ -7,7 +7,10 @@
   
 ㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤㅤ     ㅤ  ㅤㅤㅤㅤㅤ       <a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src="https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" />
 </a>      
-ㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤㅤ     ㅤ  ㅤㅤㅤㅤㅤ      ㅤ иша я тебя люблю!!
+ㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤㅤ     ㅤ  ㅤㅤㅤㅤㅤ      иша я тебя люблю!!
+
+
+ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤ  ㅤ ㅤ  ㅤ ㅤ   <img width="369" height="95" alt="cooltext494418388624459" src="https://github.com/user-attachments/assets/a6aceae3-6627-4839-bbdf-a7825cb47753" />
 
 
 ㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤ  ㅤㅤ ![dfl5al](https://github.com/user-attachments/assets/c0c94c9a-52f6-488f-9074-3763bfede2e9)![lsd_stamp_by_sosse123_daotxbj-fullview](https://github.com/user-attachments/assets/8a3a7afb-313b-4b33-8f3a-8e6c7c339ac0)![db34p0n-dd82a2a1-f558-44ef-8881-183979858111](https://github.com/user-attachments/assets/664b4cbe-9660-4d05-88ff-76c3c9c1af3a)ㅤㅤ  
