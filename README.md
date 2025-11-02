@@ -2,9 +2,8 @@
 ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤ  ㅤ 
 <img width="511" height="112" alt="tumblr_b7a5e971c94880bb7d02f86bf28a1fac_21e39c83_540" src="https://github.com/user-attachments/assets/cc87804e-f4ec-475f-b425-193056b68a7e" />
 
-  ㅤㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤㅤ       ㅤ  ㅤㅤㅤㅤㅤ                ![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&color=fb019f)
+  ㅤㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤㅤ       ㅤ         ㅤㅤㅤ       ㅤ         ㅤ![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=fb019f&label=†)
 
-  
 ㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤㅤ     ㅤ  ㅤㅤㅤㅤㅤ       <a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src="https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" />
 </a>      
 ㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤ  ㅤㅤ     ㅤㅤㅤ     ㅤ  ㅤㅤㅤㅤㅤ      иша я тебя люблю!!
