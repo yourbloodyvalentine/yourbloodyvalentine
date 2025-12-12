@@ -8,7 +8,7 @@
 кликабельно! там мои рисунки зайдите посмотрите ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/867f571f-f801-4e1b-a8c5-d40953bca633)                                                                        
 </a>      
 
-</a>ㅤㅤ  ⠀⠀⠀⠀⠀⠀⠀ㅤ![ptqnb5](https://github.com/user-attachments/assets/c3fdaf5a-3999-4bbc-9fc0-dacb261afe2a)![tumblr_4a13830dd275bcafd1482e1dbb1fc45e_83a256e2_100](https://github.com/user-attachments/assets/80bc9255-d472-4eab-99ba-6b006536e305)<img width="99" height="56" alt="dg0dude-17c89fe7-11a9-48ff-9d05-3dcaa5e86701" src="https://github.com/user-attachments/assets/1c3dd74a-486b-4151-bd73-24a7539d609d" />
+</a>ㅤㅤ  ⠀⠀⠀⠀⠀⠀⠀ㅤ⠀![ptqnb5](https://github.com/user-attachments/assets/c3fdaf5a-3999-4bbc-9fc0-dacb261afe2a)![tumblr_4a13830dd275bcafd1482e1dbb1fc45e_83a256e2_100](https://github.com/user-attachments/assets/80bc9255-d472-4eab-99ba-6b006536e305)<img width="99" height="56" alt="dg0dude-17c89fe7-11a9-48ff-9d05-3dcaa5e86701" src="https://github.com/user-attachments/assets/1c3dd74a-486b-4151-bd73-24a7539d609d" />
 
 
 ㅤㅤ ㅤㅤ ㅤㅤㅤ ![doc_2025-12-12_22-30-48](https://github.com/user-attachments/assets/9f13faf2-c157-4fa9-9a60-e1922766dcc6)
