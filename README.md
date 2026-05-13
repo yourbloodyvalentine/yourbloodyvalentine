@@ -5,9 +5,11 @@
 
 ![dfl5al](https://github.com/user-attachments/assets/c0c94c9a-52f6-488f-9074-3763bfede2e9)![lsd_stamp_by_sosse123_daotxbj-fullview](https://github.com/user-attachments/assets/8a3a7afb-313b-4b33-8f3a-8e6c7c339ac0)![db34p0n-dd82a2a1-f558-44ef-8881-183979858111](https://github.com/user-attachments/assets/664b4cbe-9660-4d05-88ff-76c3c9c1af3a)
 
-![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=fb019f&label=†)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ 
-ㅤㅤㅤ<a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src="https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" /></a>
+![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=fb019f&label=†)
+
 I LOVE MY BF SOOOO MUCH ^____^
+
+<a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src="https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" /></a>
 
 ![tumblr_34db1224264c635652409056f1281b24_b532ca2b_100](https://github.com/user-attachments/assets/f281453a-9b44-4ef0-b43e-517d1a5dfb90)![tumblr_2314877e1cc51c1cd275543c0246da93_36773421_100](https://github.com/user-attachments/assets/53ffc23c-9791-49cc-b47c-42793d6d395b)![tumblr_7f09413def10861ebdc24bfadf274b71_33edfe09_100](https://github.com/user-attachments/assets/1d061e85-d38b-4288-b996-674929fb8adb)
 
