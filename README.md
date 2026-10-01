@@ -20,5 +20,5 @@ I LOVE MY BF SOOOO MUCH ^____^
 ![doc_2025-12-12_22-30-48](https://github.com/user-attachments/assets/9f13faf2-c157-4fa9-9a60-e1922766dcc6)
 
 ![tumblr_34db1224264c635652409056f1281b24_b532ca2b_100](https://github.com/user-attachments/assets/f281453a-9b44-4ef0-b43e-517d1a5dfb90)![tumblr_2314877e1cc51c1cd275543c0246da93_36773421_100](https://github.com/user-attachments/assets/53ffc23c-9791-49cc-b47c-42793d6d395b)![tumblr_7f09413def10861ebdc24bfadf274b71_33edfe09_100](https://github.com/user-attachments/assets/1d061e85-d38b-4288-b996-674929fb8adb) ㅤ  ㅤㅤ  ㅤ  ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ    
- ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ   ㅤ  ㅤ  ㅤ   ㅤ  ㅤ   ㅤㅤ    ㅤ  ㅤ   ㅤㅤ  ㅤㅤ  ㅤ ㅤㅤ  ㅤ  ㅤ⠀ ⠀⠀
+ ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  ㅤ  
 <img width="511" height="112" alt="tumblr_b7a5e971c94880bb7d02f86bf28a1fac_21e39c83_540" src="https://github.com/user-attachments/assets/cc87804e-f4ec-475f-b425-193056b68a7e" />
