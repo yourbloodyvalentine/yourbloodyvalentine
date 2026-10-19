@@ -7,7 +7,7 @@
 
 ![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=fb019f&label=†)
 
-I LOVE MY BF SOOOO MUCH ^____^
+I LOVE MY BF SOOOO MUCH >⩊<
 
 <a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src="https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" /></a>
 
