@@ -5,7 +5,7 @@
 ⠀⠀<img width="50" height="50" alt="tumblr_859232843389c0d12f58e34dfc055a84_4243c3a6_75" src="https://github.com/user-attachments/assets/f9817b5f-963f-4bcc-92bd-318207f19696" />
 ![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=4D4D4D&label=仮死)
 
-   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I LOVE MY BF SOOOO MUCH >⩊< !      
+I LOVE MY BF SOOOO MUCH >⩊< !      
    
  <a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src= "https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" /></a> 
 ⠀<img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />
