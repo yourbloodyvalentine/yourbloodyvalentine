@@ -8,16 +8,16 @@
    ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I LOVE MY BF SOOOO MUCH >⩊< !      
    
  <a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src= "https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" /></a> 
-⠀⠀<img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />
+⠀<img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />
 
 кликабельно! там мои рисунки ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/867f571f-f801-4e1b-a8c5-d40953bca633)         
 
-![tumblr_34db1224264c635652409056f1281b24_b532ca2b_100](https://github.com/user-attachments/assets/f281453a-9b44-4ef0-b43e-517d1a5dfb90)![tumblr_2314877e1cc51c1cd275543c0246da93_36773421_100](https://github.com/user-attachments/assets/53ffc23c-9791-49cc-b47c-42793d6d395b)![tumblr_7f09413def10861ebdc24bfadf274b71_33edfe09_100](https://github.com/user-attachments/assets/1d061e85-d38b-4288-b996-674929fb8adb)⠀⠀
+![tumblr_34db1224264c635652409056f1281b24_b532ca2b_100](https://github.com/user-attachments/assets/f281453a-9b44-4ef0-b43e-517d1a5dfb90)![tumblr_2314877e1cc51c1cd275543c0246da93_36773421_100](https://github.com/user-attachments/assets/53ffc23c-9791-49cc-b47c-42793d6d395b)![tumblr_7f09413def10861ebdc24bfadf274b71_33edfe09_100](https://github.com/user-attachments/assets/1d061e85-d38b-4288-b996-674929fb8adb)<img width="99" height="56" alt="dbtvbff-e79850b9-1179-4720-8cc9-9175c3b4a4e5" src="https://github.com/user-attachments/assets/972563f5-5eab-42bc-809a-8820ecc6132b" />
 
- ![anti_drugs_by_teaganm_dfbs6j3-fullview](https://github.com/user-attachments/assets/32af9119-0c5c-440c-9193-8424382652e5)
 
-![dklm55u-18991f01-7844-4c3a-8e49-857788b6f6e7](https://github.com/user-attachments/assets/b032bc6b-8291-4a7e-9824-144b8c44c5fc)![dklm35h-289d542d-7780-4e4d-911b-47089411eacb](https://github.com/user-attachments/assets/f3cca86b-a5d3-4c9a-b7b9-dc21b5233a0a)![dklm4yg-2edf0604-4ddd-49ed-ac36-bc1fafac2035](https://github.com/user-attachments/assets/88fe43ce-5da4-4b34-862c-f25691666525)⠀
+⠀⠀⠀⠀⠀![anti_drugs_by_teaganm_dfbs6j3-fullview](https://github.com/user-attachments/assets/32af9119-0c5c-440c-9193-8424382652e5)
 
-![doc_2025-12-12_22-30-48](https://github.com/user-attachments/assets/9f13faf2-c157-4fa9-9a60-e1922766dcc6)
+![dklm55u-18991f01-7844-4c3a-8e49-857788b6f6e7](https://github.com/user-attachments/assets/b032bc6b-8291-4a7e-9824-144b8c44c5fc)![dklm35h-289d542d-7780-4e4d-911b-47089411eacb](https://github.com/user-attachments/assets/f3cca86b-a5d3-4c9a-b7b9-dc21b5233a0a)![dklm4yg-2edf0604-4ddd-49ed-ac36-bc1fafac2035](https://github.com/user-attachments/assets/88fe43ce-5da4-4b34-862c-f25691666525)<img width="99" height="55" alt="djylhq7-dcded1ba-93a7-4cab-913f-c99571c60134" src="https://github.com/user-attachments/assets/bcfe94a5-6e44-4b30-8b57-294c960c78cb" />
+
 
 <img width="511" height="112" alt="tumblr_b7a5e971c94880bb7d02f86bf28a1fac_21e39c83_540" src="https://github.com/user-attachments/assets/cc87804e-f4ec-475f-b425-193056b68a7e" />
