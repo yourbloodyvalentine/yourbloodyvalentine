@@ -3,8 +3,8 @@
 
 ⠀⠀<img width="50" height="50" alt="tumblr_859232843389c0d12f58e34dfc055a84_4243c3a6_75" src="https://github.com/user-attachments/assets/f9817b5f-963f-4bcc-92bd-318207f19696" />
 ⠀⠀![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=4D4D4D&label=仮死)
-⠀⠀⠀ᗩᖇᑕᕼIE ⠀⠀<img width="99" height="56" alt="tumblr_7154f3fcc1a11a8c104cfc9b7a2a3b84_f5f51e79_100" src="https://github.com/user-attachments/assets/59dd10e5-f26a-48b9-bf3e-3e8d3c3da82a" />
-⠀⠀ᗪᑎIᑌᑭ◞ ᗪᑎIᑌᖴ◞ ᗪᑎᑕ◞ ᑕᗪ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="255" height="102" alt="tumblr_eed434d322b8bcfe0895100057d8b680_bf7a53a6_1280" src="https://github.com/user-attachments/assets/652fca16-2f24-4263-9e69-b7a2dab1b54f" />
+⠀⠀ᗩᖇᑕᕼIE ⠀⠀<img width="99" height="56" alt="tumblr_7154f3fcc1a11a8c104cfc9b7a2a3b84_f5f51e79_100" src="https://github.com/user-attachments/assets/59dd10e5-f26a-48b9-bf3e-3e8d3c3da82a" />
+⠀⠀ᗪᑎIᑌᑭ◞ ᗪᑎIᑌᖴ◞ ᗪᑎᑕ◞ ᑕᗪ ⠀⠀<img width="255" height="102" alt="tumblr_eed434d322b8bcfe0895100057d8b680_bf7a53a6_1280" src="https://github.com/user-attachments/assets/652fca16-2f24-4263-9e69-b7a2dab1b54f" />
 ―――――――――――――――――――――――――――――――――― ⠀⠀<img width="99" height="56" alt="ddcv9fo-d7d2a290-90af-41cd-aa08-ae6ba10e001a" src="https://github.com/user-attachments/assets/a5a19e9f-997d-44f0-a7d7-e88386417753" /><img width="100" height="55" alt="tumblr_94e9470fcb9807d5218cf2ae23f021e6_453ee248_100" src="https://github.com/user-attachments/assets/eb16274c-eeb6-489a-933c-f619c85fc312" /><img width="100" height="57" alt="tumblr_0f08ad3ba15d0b4d264693bcb4d87887_1ef8819b_100" src="https://github.com/user-attachments/assets/89d1ce74-4183-4200-8f79-d91f64e30cb1" />
 
 
