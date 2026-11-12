@@ -13,11 +13,9 @@
 
 <img width="2048" height="122" alt="tumblr_ba4aa09f68de7639d143746268651e18_be8853f0_2048" src="https://github.com/user-attachments/assets/a175de5a-10e9-4194-9d83-b00cc2ed9a50" />
 
-⠀⠀I LOVE MY BF SOOOO MUCH >⩊< .ᐟ.ᐟ
-⠀⠀⠀<img width="400" height="71" alt="tumblr_f2ac9dafb7f8d7bd5d76abbd98c00541_d3f60873_400" src="https://github.com/user-attachments/assets/53242cc4-c912-4cff-a6ba-e8fa066714e1" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I LOVE MY BF SOOOO MUCH >⩊< .ᐟ.ᐟ
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://github.com/isha-su"><g src=""><img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />
-<img width="326" height="229" alt="НовыйХолст621321" src="https://github.com/user-attachments/assets/c4f945b2-9b4f-4004-99cc-ae91c295b700" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://github.com/isha-su"><g src=""><img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" /><img width="326" height="229" alt="НовыйХолст621321" src="https://github.com/user-attachments/assets/c4f945b2-9b4f-4004-99cc-ae91c295b700" />
 
 
 
