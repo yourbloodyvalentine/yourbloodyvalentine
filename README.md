@@ -1,23 +1,25 @@
+<img width="2048" height="122" alt="tumblr_ba4aa09f68de7639d143746268651e18_be8853f0_2048" src="https://github.com/user-attachments/assets/a175de5a-10e9-4194-9d83-b00cc2ed9a50" />
+―――――――――――――――――――――――――――――――――――――――――― ⠀⠀<img width="99" height="56" alt="ddcw87a-9cfb0559-2699-4a04-b11c-37c8f27f6a5f" src="https://github.com/user-attachments/assets/6af71172-4c0f-4eae-a86f-dcb758fddd35" /><img width="99" height="56" alt="tumblr_8a8e1f3cad9e150ee3a8148997eee470_44ed84df_100" src="https://github.com/user-attachments/assets/5b3ee22e-4b82-4e58-af0f-4b16dc734873" /><img width="100" height="59" alt="tumblr_a84a606a3aba2c1f94f3fdcd861a15f9_71711163_100" src="https://github.com/user-attachments/assets/49506101-f148-44b5-b644-b2ccb578f684" />
 
-<img width="511" height="112" alt="tumblr_b7a5e971c94880bb7d02f86bf28a1fac_21e39c83_540" src="https://github.com/user-attachments/assets/cc87804e-f4ec-475f-b425-193056b68a7e" /> 
-
-![dfl5al](https://github.com/user-attachments/assets/c0c94c9a-52f6-488f-9074-3763bfede2e9)![lsd_stamp_by_sosse123_daotxbj-fullview](https://github.com/user-attachments/assets/8a3a7afb-313b-4b33-8f3a-8e6c7c339ac0)![db34p0n-dd82a2a1-f558-44ef-8881-183979858111](https://github.com/user-attachments/assets/664b4cbe-9660-4d05-88ff-76c3c9c1af3a)
 ⠀⠀<img width="50" height="50" alt="tumblr_859232843389c0d12f58e34dfc055a84_4243c3a6_75" src="https://github.com/user-attachments/assets/f9817b5f-963f-4bcc-92bd-318207f19696" />
-![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=4D4D4D&label=仮死)
-
-I LOVE MY BF SOOOO MUCH >⩊< !⠀⠀⠀<img width="50" height="50" alt="tumblr_b8989f1b0a643c1aa5c59d36eab4dc95_63b84cb0_75" src="https://github.com/user-attachments/assets/0ffafefe-2a48-4d92-8224-f5f6ad855319" />
-
- <a href="https://github.com/isha-su"><g src=""><img width="130" height="114" alt="image" src= "https://github.com/user-attachments/assets/0faed6d0-4fcc-42c9-a297-90723ad4377b" /></a> 
-⠀<img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />
-
-кликабельно! там мои рисунки ![dacei7k-142e74d4-74cf-49c4-aa3e-1c7e03d3b4eb](https://github.com/user-attachments/assets/dcbf48d5-c3ca-487c-b3bb-10cb6519104c) <a href="https://t.me/archie_arrr"><g src="">![tumblr_b9e487811523362f06fb9e4b8e7569ad_ed63866d_100ываыыа](https://github.com/user-attachments/assets/867f571f-f801-4e1b-a8c5-d40953bca633)         
-
-![tumblr_34db1224264c635652409056f1281b24_b532ca2b_100](https://github.com/user-attachments/assets/f281453a-9b44-4ef0-b43e-517d1a5dfb90)![tumblr_2314877e1cc51c1cd275543c0246da93_36773421_100](https://github.com/user-attachments/assets/53ffc23c-9791-49cc-b47c-42793d6d395b)![tumblr_7f09413def10861ebdc24bfadf274b71_33edfe09_100](https://github.com/user-attachments/assets/1d061e85-d38b-4288-b996-674929fb8adb)<img width="99" height="56" alt="dbtvbff-e79850b9-1179-4720-8cc9-9175c3b4a4e5" src="https://github.com/user-attachments/assets/972563f5-5eab-42bc-809a-8820ecc6132b" />
+⠀⠀![](https://komarev.com/ghpvc/?username=yourbloodyvalentine&style=for-the-badge&color=4D4D4D&label=仮死)
+⠀⠀⠀ᗩᖇᑕᕼIE ⠀⠀<img width="99" height="56" alt="tumblr_7154f3fcc1a11a8c104cfc9b7a2a3b84_f5f51e79_100" src="https://github.com/user-attachments/assets/59dd10e5-f26a-48b9-bf3e-3e8d3c3da82a" />
+⠀⠀ᗪᑎIᑌᑭ◞ ᗪᑎIᑌᖴ◞ ᗪᑎᑕ◞ ᑕᗪ ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="255" height="102" alt="tumblr_eed434d322b8bcfe0895100057d8b680_bf7a53a6_1280" src="https://github.com/user-attachments/assets/652fca16-2f24-4263-9e69-b7a2dab1b54f" />
+―――――――――――――――――――――――――――――――――――――――――― ⠀⠀<img width="99" height="56" alt="ddcv9fo-d7d2a290-90af-41cd-aa08-ae6ba10e001a" src="https://github.com/user-attachments/assets/a5a19e9f-997d-44f0-a7d7-e88386417753" /><img width="100" height="55" alt="tumblr_94e9470fcb9807d5218cf2ae23f021e6_453ee248_100" src="https://github.com/user-attachments/assets/eb16274c-eeb6-489a-933c-f619c85fc312" /><img width="100" height="57" alt="tumblr_0f08ad3ba15d0b4d264693bcb4d87887_1ef8819b_100" src="https://github.com/user-attachments/assets/89d1ce74-4183-4200-8f79-d91f64e30cb1" />
 
 
-⠀⠀⠀⠀⠀![anti_drugs_by_teaganm_dfbs6j3-fullview](https://github.com/user-attachments/assets/32af9119-0c5c-440c-9193-8424382652e5)
+| <img width="498" height="278" alt="akechi-goro-akechi" src="https://github.com/user-attachments/assets/a05f3adb-7d99-49c9-9631-faf2d68e472e" /> | <img width="498" height="280" alt="black-mask-akechi-akechi" src="https://github.com/user-attachments/assets/673aa30a-71c5-41e3-928c-96d98340d6dd" /> |
+|---|---|
 
-![dklm55u-18991f01-7844-4c3a-8e49-857788b6f6e7](https://github.com/user-attachments/assets/b032bc6b-8291-4a7e-9824-144b8c44c5fc)![dklm35h-289d542d-7780-4e4d-911b-47089411eacb](https://github.com/user-attachments/assets/f3cca86b-a5d3-4c9a-b7b9-dc21b5233a0a)![dklm4yg-2edf0604-4ddd-49ed-ac36-bc1fafac2035](https://github.com/user-attachments/assets/88fe43ce-5da4-4b34-862c-f25691666525)<img width="99" height="55" alt="djylhq7-dcded1ba-93a7-4cab-913f-c99571c60134" src="https://github.com/user-attachments/assets/bcfe94a5-6e44-4b30-8b57-294c960c78cb" />
+<img width="2048" height="122" alt="tumblr_ba4aa09f68de7639d143746268651e18_be8853f0_2048" src="https://github.com/user-attachments/assets/a175de5a-10e9-4194-9d83-b00cc2ed9a50" />
+
+⠀⠀I LOVE MY BF SOOOO MUCH >⩊< .ᐟ.ᐟ
+⠀⠀⠀<img width="400" height="71" alt="tumblr_f2ac9dafb7f8d7bd5d76abbd98c00541_d3f60873_400" src="https://github.com/user-attachments/assets/53242cc4-c912-4cff-a6ba-e8fa066714e1" />
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://github.com/isha-su"><g src=""><img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />
+<img width="326" height="229" alt="НовыйХолст621321" src="https://github.com/user-attachments/assets/c4f945b2-9b4f-4004-99cc-ae91c295b700" />
 
 
-<img width="511" height="112" alt="tumblr_b7a5e971c94880bb7d02f86bf28a1fac_21e39c83_540" src="https://github.com/user-attachments/assets/cc87804e-f4ec-475f-b425-193056b68a7e" />
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
