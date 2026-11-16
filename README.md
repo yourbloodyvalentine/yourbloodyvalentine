@@ -20,6 +20,9 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://github.com/isha-su"><g src=""><img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />⠀<img width="326" height="229" alt="НовыйХолст621321" src="https://github.com/user-attachments/assets/c4f945b2-9b4f-4004-99cc-ae91c295b700" />
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="150" height="20" alt="tumblr_3a2dcdc70c30f8a2a3f3baf2c85a6564_72cf48cc_250" src="https://github.com/user-attachments/assets/90138750-fd9b-414f-a52f-4e29481f4d39" />
+
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="542" height="91" alt="tumblr_7a524a74d4ff85a3c41ff32ec5492343_ecb9ea9c_640" src="https://github.com/user-attachments/assets/bc05746a-725e-45a0-9c2a-734ca74151b7" />
 
 
