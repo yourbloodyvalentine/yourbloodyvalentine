@@ -15,7 +15,7 @@
 ⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="100" height="57" alt="tumblr_f6de565b88bd57d530ad511cf9f1cd4f_0f23e278_100" src="https://github.com/user-attachments/assets/a7145c91-9cc3-4289-a6c9-f1e5de66a78d" />
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="150" height="20" alt="tumblr_b0efff3e33464facf4af9ee8624d6463_e901f0c3_250" src="https://github.com/user-attachments/assets/af044e75-541e-4d3d-a819-8234db792715" /> >⩊< .ᐟ.ᐟ
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="150" height="20" alt="tumblr_b0efff3e33464facf4af9ee8624d6463_e901f0c3_250" src="https://github.com/user-attachments/assets/af044e75-541e-4d3d-a819-8234db792715" />
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="99" height="56" alt="tumblr_437da2b1bdb88e7b6f5ca5107f8d92a9_51dd1bcd_100" src="https://github.com/user-attachments/assets/59e7df84-dbb2-4f9a-8394-be4cc20590fa" />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://github.com/isha-su"><g src=""><img width="326" height="229" alt="tumblr_73eb0dd6d85d954bf0a25776cb40e302_070506be_640" src="https://github.com/user-attachments/assets/3d651f3e-dde5-45fd-8b96-c6647eaa56e8" />⠀<img width="326" height="229" alt="НовыйХолст621321" src="https://github.com/user-attachments/assets/c4f945b2-9b4f-4004-99cc-ae91c295b700" />
