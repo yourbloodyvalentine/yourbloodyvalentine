@@ -11,6 +11,9 @@
 |<img width="448" height="248" alt="black-mask-akechi-akechi" src="https://github.com/user-attachments/assets/673aa30a-71c5-41e3-928c-96d98340d6dd" />|<img width="448" height="248" alt="akechi-goro-akechi" src="https://github.com/user-attachments/assets/a05f3adb-7d99-49c9-9631-faf2d68e472e" />|
 |---|---|
 
+<p align="center"><img width="304" height="304" alt="tumblr_b1264baedfd822e9e46b056bd21f6413_64ac25b3_400" src="https://github.com/user-attachments/assets/4cb78803-6b13-416a-97ff-0c8584ad4878" />
+
+
 <img width="2048" height="122" alt="tumblr_ba4aa09f68de7639d143746268651e18_be8853f0_2048" src="https://github.com/user-attachments/assets/a175de5a-10e9-4194-9d83-b00cc2ed9a50" />
 ⠀⠀⠀
 
