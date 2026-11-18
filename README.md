@@ -8,7 +8,7 @@
 ――――――――――――――――――――――――――――――――――― ⠀⠀⠀⠀⠀<img width="99" height="56" alt="ddcv9fo-d7d2a290-90af-41cd-aa08-ae6ba10e001a" src="https://github.com/user-attachments/assets/a5a19e9f-997d-44f0-a7d7-e88386417753" /><img width="100" height="55" alt="tumblr_94e9470fcb9807d5218cf2ae23f021e6_453ee248_100" src="https://github.com/user-attachments/assets/eb16274c-eeb6-489a-933c-f619c85fc312" /><img width="100" height="57" alt="tumblr_0f08ad3ba15d0b4d264693bcb4d87887_1ef8819b_100" src="https://github.com/user-attachments/assets/89d1ce74-4183-4200-8f79-d91f64e30cb1" />
 
 
-|<img width="448" height="248" alt="black-mask-akechi-akechi" src="https://github.com/user-attachments/assets/673aa30a-71c5-41e3-928c-96d98340d6dd" />|<img width="448" height="248" alt="akechi-goro-akechi" src="https://github.com/user-attachments/assets/a05f3adb-7d99-49c9-9631-faf2d68e472e" />|
+|<img width="478" height="269" alt="black-mask-akechi-akechi(1)" src="https://github.com/user-attachments/assets/701f32d1-31bd-4229-ba45-d2c2751005d1" />|<img width="448" height="248" alt="akechi-goro-akechi" src="https://github.com/user-attachments/assets/a05f3adb-7d99-49c9-9631-faf2d68e472e" />|
 |-|-|
 
 <p align="center"><img width="99" height="56" alt="tumblr_afbf92f3fea34b67a569db670fdb06c7_54760620_100" src="https://github.com/user-attachments/assets/c90ccbb7-a3f2-4519-a197-643b64d69394" /><img width="99" height="56" alt="tumblr_7c6322d3cb89107d86be000a12b2fcaf_92abd51a_100" src="https://github.com/user-attachments/assets/6249d524-e380-4596-afdd-b73a6c13c01e" /><img width="99" height="56" alt="tumblr_01d5651d5661aaf045253c2f25b74bcc_c43152df_100" src="https://github.com/user-attachments/assets/6a67f3d0-4107-4c5f-9745-4c81f446a82f" />
