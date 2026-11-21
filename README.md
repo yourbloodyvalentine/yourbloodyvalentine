@@ -5,7 +5,7 @@
 <p align="center">ᗪᑎIᑌᑭ◞ ᗪᑎIᑌᖴ◞ ᗪᑎᑕ◞ ᑕᗪ<br>
 <div align="center">
 
-|<img width="448" height="248" alt="black-mask-akechi-akechi(1)" src="https://github.com/user-attachments/assets/701f32d1-31bd-4229-ba45-d2c2751005d1" />|
+|<img width="498" height="280" alt="black-mask-akechi-akechi" src="https://github.com/user-attachments/assets/8b2bd319-fa9a-4934-9f53-3ab5e51c8356" />|
 |-|
 <p align="center"><img width="419" height="40" alt="tumblr_b682c7ff2d3400611322a7bce69cd7f0_37755504_204832423" src="https://github.com/user-attachments/assets/ec497f4c-8762-4fea-9b64-55b263b1117a" />
 <p align="center"><img width="99" height="56" alt="ddcw87a-9cfb0559-2699-4a04-b11c-37c8f27f6a5f" src="https://github.com/user-attachments/assets/6af71172-4c0f-4eae-a86f-dcb758fddd35" /><img width="99" height="56" alt="tumblr_8a8e1f3cad9e150ee3a8148997eee470_44ed84df_100" src="https://github.com/user-attachments/assets/5b3ee22e-4b82-4e58-af0f-4b16dc734873" /><img width="100" height="59" alt="tumblr_a84a606a3aba2c1f94f3fdcd861a15f9_71711163_100" src="https://github.com/user-attachments/assets/49506101-f148-44b5-b644-b2ccb578f684" /><br>
